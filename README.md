@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analytics 
 - 🌱 I’m currently learning data analytics essentials 
   
-- 📫 How to reach me ...
+- 📫 How to reach me ...+254769393981
 - 😄 Pronouns: She/Her 
 - ⚡ Fun fact: I'm an Industrial Chemist
 
